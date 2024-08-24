@@ -1,1 +1,1 @@
-![git](https://github.com/user-attachments/assets/0a69b73e-cf1b-4296-a557-a44209c7bcd4)
+![github bio](https://github.com/user-attachments/assets/08598945-d910-4a17-9791-13ee25caf2be)
