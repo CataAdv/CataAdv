@@ -1,1 +1,1 @@
-![Frame 2147223850](https://github.com/user-attachments/assets/f4b8ec09-98d5-492a-940a-9b7cebc6f804)
+![bio](https://github.com/user-attachments/assets/39d12507-48d1-48e9-b6c8-cf57a4957fc7)
